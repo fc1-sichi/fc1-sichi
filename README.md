@@ -15,7 +15,7 @@
   </a>
   <h1>
     
-  👻Jochim Edago👻
+  👻Sichi Mosh👻
     
   </h1>
 </div>
